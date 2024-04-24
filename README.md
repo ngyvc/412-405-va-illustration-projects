@@ -4,6 +4,12 @@
 
 ## Packaging
 
+[Appearance attributes](https://helpx.adobe.com/ca/illustrator/using/appearance-attributes.html)
+
+[Image Trace](https://helpx.adobe.com/ca/illustrator/using/image-trace.html)
+
+[Create and edit patterns](https://helpx.adobe.com/ca/illustrator/using/create-edit-patterns.html)
+
 [victorian patterns](https://www.google.com/search?sca_esv=560abf9450f87eaf&q=victorian+patterns+free)
 
 [Learn the difference between spot color and process color](https://www.adobe.com/creativecloud/design/discover/spot-vs-process-color.html)
