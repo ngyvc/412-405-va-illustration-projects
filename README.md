@@ -4,6 +4,24 @@
 
 ## Packaging
 
+[victorian patterns](https://www.google.com/search?sca_esv=560abf9450f87eaf&q=victorian+patterns+free)
+
+[Learn the difference between spot color and process color](https://www.adobe.com/creativecloud/design/discover/spot-vs-process-color.html)
+
+[victorian banners](https://www.google.com/search?sca_esv=c765667fbd5a2f18&q=victorian+banner+images)
+
+[dafont - victorian](https://www.dafont.com/search.php?q=victorian)
+
+[Glyphs and special characters](https://helpx.adobe.com/incopy/using/glyphs-special-characters.html)
+
+[Graphic styles](https://helpx.adobe.com/ca/illustrator/using/graphic-styles.html)
+
+[Create 3D objects](https://helpx.adobe.com/ca/illustrator/using/creating-3d-objects.html)
+
+[Map artwork to a 3D object](https://helpx.adobe.com/ca/illustrator/using/creating-3d-objects.html#map_artwork_to_a_3d_object)
+
+### Design movements
+
 [Design movements](http://designkmg.weebly.com/design-movements.html)
 
 [Arts and Crafts movement](https://en.wikipedia.org/wiki/Arts_and_Crafts_movement)
